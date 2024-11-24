@@ -1,5 +1,5 @@
-Introduction to video editing and production:
-https://drive.google.com/folderview?id=1K1_absIgJP0kyKbeIi5VvZ2E66h-FB8Q￼Enter
+Introduction to video editing and Production:
+https://drive.google.com/folderview?id=1K1_absIgJP0kyKbeIi5VvZ2E66h-FB8Q
 
 
 
