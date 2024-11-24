@@ -1,3 +1,8 @@
+Introduction to video editing and production:
+https://drive.google.com/folderview?id=1K1_absIgJP0kyKbeIi5VvZ2E66h-FB8Q￼Enter
+
+
+
 EDGE - Video Producation & Editing Program
 
 
@@ -13,5 +18,17 @@ What is copyright:
 https://drive.google.com/folderview?id=1Kr6iVe1SHFn-Y0bzAO6YP-SQIKTl21Is
 
 
-Introduction to video editing and production:
-https://drive.google.com/folderview?id=1K1_absIgJP0kyKbeIi5VvZ2E66h-FB8Q￼Enter
+
+
+
+
+
+
+
+
+
+
+
+
+
+
