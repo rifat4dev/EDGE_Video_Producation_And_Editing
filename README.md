@@ -1,9 +1,9 @@
+EDGE - Video Production & Editing Program
+
+
+
 Introduction to video editing and Production:
 https://drive.google.com/folderview?id=1K1_absIgJP0kyKbeIi5VvZ2E66h-FB8Q
-
-
-
-EDGE - Video Producation & Editing Program
 
 
 Green screen demo:
